@@ -1,0 +1,6 @@
+- 👋 Hi, My name is Jae Cho
+- 👀 I’m interested in Learning!
+- 🌱 I’m currently learning the Cloud Challenge
+- 💞️ I’m looking to collaborate on Cloud Related Work
+- 📫 How to reach me: jaekcho25@gmail.com
+- ✨ special ✨ 
